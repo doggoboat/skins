@@ -1,15 +1,9 @@
 # skins
-Most of the osu! skins that I use (some way more than others)
+Some skins I made over time from scratch (probably outdated somehow)
 
-# [luca starry helvetica](https://drive.google.com/file/d/11cuKv2F4mSBBDh1i1s48CI-RTwVlIQR1/view)
-![](https://i.imgur.com/LA6cRGK.png)
+# [nichijou](https://doggo.s-ul.eu/JVi7mfji)
+![](https://puu.sh/GFr8q/77dc2fadcc.png)
 
 
 # [made in abyss](https://www.reddit.com/r/OsuSkins/comments/hoak7j/std_only_made_in_abyss_hdsd_169/)
 ![](https://i.imgur.com/DAvpqfX.png)
-
-# [- payneyaes](https://payney.s-ul.eu/9siEeMsr)
-![](https://osu.ppy.sh/ss/15485188/4bb4)
-
-# [-        # re;owoTuna v1.1 『CK』 #        -](https://drive.google.com/file/d/1pS9Wic54_SaVUQK1A7UKHXBCsR7OlRi8/view?usp=sharing)
-![](https://i.imgur.com/Mq8ofx1.png)
