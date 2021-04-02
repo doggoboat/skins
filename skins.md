@@ -1,5 +1,5 @@
 # skins
-Some skins that I made over time from scratch (probably outdated somehow)
+Some skins that I made over time, more to come in the future!
 
 # [sakura](https://drive.google.com/file/d/1BPY7vLfKXHtWaw4gCJ-ciujcsf_dE0vF/view?usp=sharing)
 ![](https://i.imgur.com/9DNpPLl.png)
