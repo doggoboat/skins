@@ -1,7 +1,7 @@
 # skins
 Some skins that I made over time, more to come in the future!
 
-# [nichijou](https://drive.google.com/file/d/1WaPHNs-smije4RYoslEkgJGNKJ1h5uJ3/view?usp=sharing)
+# [nichijou v2](https://drive.google.com/file/d/1WaPHNs-smije4RYoslEkgJGNKJ1h5uJ3/view?usp=sharing)
 ![](https://puu.sh/HvTeJ/f8f500f4c8.jpeg)
 
 # [sakura](https://drive.google.com/file/d/1BPY7vLfKXHtWaw4gCJ-ciujcsf_dE0vF/view?usp=sharing)
