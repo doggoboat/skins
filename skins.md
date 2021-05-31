@@ -2,6 +2,9 @@
 Some skins that I made over time, more to come in the future!
 If any links are broken DM me ingame or over Discord (delta#1366)
 
+# [mokou (for fujiwara)](https://drive.google.com/file/d/1QcXxkEv6lu8Oo4DWc1nt4KFRXVKEeSSh/view?usp=sharing)
+! [](https://doggo.s-ul.eu/FMqth9Ao)
+
 # [natsusaki yomi (commission for milim)](https://milinho.s-ul.eu/TTJjpnEj)
 ![](https://camo.githubusercontent.com/51bf84de4f5c9b5ccd5bae708dbcd7b8602ea6c1bb1e29d643b4f835c66768b6/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3731363039383634333530353138343834392f3834373239323335323139363131363530312f756e6b6e6f776e2e706e67)
 
